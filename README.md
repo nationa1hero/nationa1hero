@@ -22,5 +22,5 @@
 ### Связаться со мной
 
 - телеграм: https://t.me/nationa1hero
-- email: eldarshpak@yande.ru
+- email: eldarshpak@yandex.ru
 
